@@ -23,3 +23,11 @@ This is an attempt to allow anyone who can connect online in any way to learn, s
 As Tolkien wrote, "Speak, friend, and enter."
 
 You are most welcome here. I hope you find peace in this valley, and hear the resonsnce from the song of your soul.
+
+For more information, and other related works, you can visit https://filmfreeway.com/bradreinhold
+
+All works are intended as free public benefit. There are notes throughout various spaces on appropriate use of all works.
+
+Thanks for visiting. I hope what you find here benefits you. That is the works' sole intent.
+
+In Peace 🕊️ 
