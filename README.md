@@ -3,9 +3,9 @@ Cathedral, Museum, Garden
 
 ++§°°{=|•°•^ππ∆ππ^•°•|=}°°§++
 
-Welcome to the House of Light.
+Welcome to the House of the Sacred Light.
 
-This space is intended as an artistic offerring for all poeoples equally, regardless of where their journey has lead from, or is leading to, or will lead.
+This space is intended as an artistic offerring for all peoples equally, regardless of where their journey has lead from, or is leading to, or will lead.
 
 This is a safe space for all.
 
